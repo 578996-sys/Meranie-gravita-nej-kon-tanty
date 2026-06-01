@@ -1,0 +1,1 @@
+# Meranie-gravita-nej-kon-tanty
