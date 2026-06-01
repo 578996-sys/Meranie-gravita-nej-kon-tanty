@@ -1,1 +1,1 @@
-# Meranie-gravita-nej-kon-tanty
+# Meranie-gravitačnej-konštanty
